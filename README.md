@@ -1,1 +1,1 @@
-# FUK-DIS-SHIT
+# Mazes
